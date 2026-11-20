@@ -1,6 +1,10 @@
+[![make.fun](https://make.fun/badge/gta6-meme-x-01.svg)](https://make.fun/bounty/gta6-meme-x-01)
+[![Rank](https://make.fun/badge/gta6-meme-x-01/Catacom5/gta6-meme-x-01/rank.svg)](https://make.fun/bounty/gta6-meme-x-01)
+[![Reward](https://make.fun/badge/gta6-meme-x-01/Catacom5/gta6-meme-x-01/reward.svg)](https://make.fun/bounty/gta6-meme-x-01)
+
 # GTA 6 meme on X — make.fun bounty gta6-meme-x-01
 
-Entry for https://make.fun/bounty/gta6-meme-x-01 ($500, top 50 share).
+Entry for [make.fun bounty gta6-meme-x-01](https://make.fun/bounty/gta6-meme-x-01) ($500, top 50 share) on [make.fun](https://make.fun).
 
 Live X post: https://x.com/catacom5/status/2123691290474815941
 Posted by @catacom5, 2026-11-20.
